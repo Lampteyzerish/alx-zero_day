@@ -1,1 +1,1 @@
-Please read
+Kindly read this first
